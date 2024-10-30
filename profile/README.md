@@ -26,17 +26,17 @@ Login your 91 club account to play games, win real money, deposit money, withdra
 
 **Note** : This password will be used while withdrawing money, so make sure you create a strong password. 
 
-91 Club App download
+[91 Club App download](https://91-clubapk.com/91-club-sign-up/)
 
-91 Club Invite Code
+[91 Club Invite Code](https://91-clubapk.com/91-club-invite-code/)
 
-91 Club Hack Mod APk
+[91 Club Hack Mod APk](https://91-clubapk.com/91-club-vip-mod-menu-trex-download/)
 
-91 Club Predictions 
+[91 Club Predictions](https://91-clubapk.com/91-club-predictions/) 
 
 91 Club Telegram Group 
 
-91 Club Gift Code
+[91 Club Gift Code](https://91-clubapk.com/91-club-login/)
 
 91 Club Refer and Earn 
 
